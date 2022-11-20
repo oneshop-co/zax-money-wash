@@ -1,6 +1,6 @@
 # zax-money-wash
 
-**CopyRight of this script is for one shop community**
+**(© 2022 GitHub) CopyRight of this script is for one shop community**
 
 hi everybody 😘<br>
 i am arvin zax<br>
