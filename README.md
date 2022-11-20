@@ -1,5 +1,7 @@
 # zax-money-wash
 
+**CopyRight of this script is for one shop community**
+
 hi everybody 😘<br>
 i am arvin zax<br>
 i am creator of one shop development community<br>
@@ -7,7 +9,7 @@ in this repository i have a money wash script for you<br>
 this script made my me and one shop<br>
 for sopporting me please join in my discord server<br>
 
-**🥰 MY DISCORD:**<br>
+**🥰 One Shop DISCORD:**<br>
 <a href="https://discord.gg/9HumDzMusA">ONE SHOP COMMUNITY</a>
 
 <br>**🥰 MY YouTube:**<br>
