@@ -9,6 +9,9 @@ in this repository i have a money wash script for you<br>
 this script made my me and one shop<br>
 for sopporting me please join in my discord server<br>
 
+**🎉 One Shop TEBEX:**<br>
+<a href="https://oneshop.tebex.io">ONE SHOP TEBEX</a>
+
 **🥰 One Shop DISCORD:**<br>
 <a href="https://discord.gg/9HumDzMusA">ONE SHOP COMMUNITY</a>
 
