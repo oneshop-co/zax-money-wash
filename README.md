@@ -6,7 +6,7 @@ hi everybody 😘<br>
 i am arvin zax<br>
 i am creator of one shop development community<br>
 in this repository i have a money wash script for you<br>
-this script made my me and one shop<br>
+this script made by me and one shop<br>
 for sopporting me please join in my discord server<br>
 
 **🎉 One Shop TEBEX:**<br>
